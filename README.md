@@ -6,7 +6,7 @@
 
 耐思云直连地址一：[init.innice.org](https://init.innice.org/#/register?code=ocpiCtPe)
 
-地址二：[https://nicepro.cc](https://nicepro.cc/#/register?code=ocpiCtPe)
+地址二：[https://nicepro.cc](https://init.innice.org/#/register?code=ocpiCtPe)
 
 ---
 
