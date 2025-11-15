@@ -1,5 +1,7 @@
 # nicecloud耐思云官网最新地址
 
+2025-11-15更新：疑似已经跑路……
+
 耐思云永久官网：[https://nicecloud.io](https://init.innice.org/#/register?code=ocpiCtPe)
 
 官网打不开怎么办？下面是最新备用地址：
